@@ -9,7 +9,6 @@
 
 - ⚡ I would be interested in **an experience abroad**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
